@@ -1,6 +1,6 @@
 ## THIS REPO WAS MOVED TO A NEW ONE
 
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a><img src='https://telegra.ph/file/f434a1ccd5cd74e630e4f.jpg'/></a>
 
 ## GET NEW BELTAH-MD BOT FROM BELOW
 
